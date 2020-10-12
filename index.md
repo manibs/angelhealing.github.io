@@ -6,6 +6,10 @@ This course is 21 days course.
 Introduction to healing course
 [Intro](https://youtu.be/ALSeSuqs3fE)
 
+[Sense meditation](https://youtu.be/vlL_ot10Dx4)
+
+Instructions 
+
 You can use the [editor on GitHub](https://github.com/manibs/angelhealing.github.io/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
 
