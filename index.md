@@ -26,7 +26,7 @@ Tongue- Taste
 Skin- Touch
 Nose- Smell
 
-###Hindi
+### Hindi
 
 1) पंख अपने रास्ते पर पंख ढूंढना स्वर्गदूतों के अधिक सामान्यतः ज्ञात संकेतों में से एक है। किसी भी रंग के पंख एक सुंदर अनुस्मारक है कि आपके स्वर्गदूतों के पास हैं, प्यार और आप परदे के पीछे से समर्थन कर रहे हैं
 
@@ -49,7 +49,64 @@ Nose- Smell
 10. भावनाओं को अगर आपको लगता है जैसे आप एक दूत की उपस्थिति में हैं ... आप शायद कर रहे हैं! आप किसी की तरह महसूस कर सकते है बस तुम पिछले चला गया, जब कोई भी वहां है, या आप छाप किसी को आप के साथ एक कमरे में मौजूद है जब यह खाली है मिल सकता है । अपने स्वर्गदूतों आप के लिए बाहर तक पहुंचने, बहुत आसानी से और आप प्यार के अपने पंखों में लपेटो, अपने हाथ या गर्दन ब्रश, या धीरे अपनी पीठ या कंधे पर अपने हाथ जगह हो सकती है । कभी-कभी स्वर्गदूत अपनी उपस्थिति को बहुत स्पष्ट कर देंगे जिससे आपको बिना शर्त प्यार की भारी भावना मिलती है। या जब आप एक पुस्तक की दुकान में हैं, तो आप ठंड लगना मिलता है, और फिर एक किताब अचानक शेल्फ से कूदता है । ध्यान दें, अपने दूत आप के साथ है! 
 
  11. संकेत या विज्ञापन एंजेल संकेत अक्सर एक भौतिक हस्ताक्षर या बिलबोर्ड पर एक संदेश देख के रूप में आ जाएगा। जब आप अपने स्वर्गदूतों से मार्गदर्शन के लिए पूछते हैं खुले और सतर्क रहते हैं, और आप होर्डिंग, सड़क के नाम, या दुकान के संकेत के एक नंबर पर एक निश्चित शब्द या वाक्यांश देख शुरू कर सकते हैं । हाल ही में मैं न्यू मेक्सिको में था और या तो सेडोना AZ, या दक्षिणी न्यू मेक्सिको के लिए एक यात्रा लेने की योजना बना ... मुझे यकीन नहीं था जो विकल्प चुनने के लिए, और इसलिए मैं निर्णय लेने में अपने स्वर्गदूतों से मदद के लिए कहा (जबकि एक कार में एक यात्री के रूप में सवारी) । लगभग तुरंत पूछने के बाद, "सेडोना स्वास्थ्य और पोषण" के लिए एक बड़ा संकेत मेरे सामने सड़क पर दिखाई दिया । यह एक स्थानीय व्यवसाय के लिए एक विज्ञापन था ... लेकिन मैं संकेत ले लिया और समाप्त एक अविश्वसनीय रूप से जादुई होने, और पुरस्कृत यात्रा जब आप अपने मन में एक संदेश प्राप्त करते हैं, या आप एक फुसफुसाए आवाज जो पतली हवा से बाहर दिखाई लगता है, तो आप अपने स्वर्गदूतों के मार्गदर्शन का अनुभव हो सकता है । मान नहीं तुम इसे बना रहे हैं! यदि आप वास्तव में नहीं सुन सकते हैं कि क्या कहा जा रहा है, तो अपने दूत से थोड़ा ज़ोर से बोलने के लिए कहें ताकि आप समझ सकें। अपने स्वर्गदूतों के मार्गदर्शन को सुनना उनकी उपस्थिति का एक सुंदर संकेत है, और कॉम है
- 
+
+## Angel Presence
+
+एंजेल थेरेपी एक आध्यात्मिक उपचार पद्धति है जिसमें आपके अभिभावक स्वर्गदूतों और मेहराबों (परी दुनिया के प्रबंधकों की तरह) के साथ काम करना शामिल है।
+
+चिकित्सकों के अनुसार, सभी के पास अभिभावक देवदूत होते हैं और उनके साथ जुड़ने से आपके जीवन में अधिक शांति पैदा करने में मदद मिलती है। भक्तों का मानना ​​है कि स्वर्गदूत आपके जीवन के उद्देश्य में कई क्षेत्रों-वित्त, रिश्ते, स्वास्थ्य, और दोहन को स्पष्ट मार्गदर्शन दे सकते हैं। वे व्यावहारिक सहायक हैं, जो हमारे रोजमर्रा के जीवन में हस्तक्षेप करते हैं, लेकिन आप उनकी मदद नहीं मांगेंगे, क्योंकि स्वर्गदूत किसी को भी नहीं करते हैं, और किसी की स्वतंत्रता पर थोपते नहीं है.
+
+चिकित्सकों का कहना है कि आपके स्वर्गदूतों के साथ जुड़ने से ऐसा लगता है कि आप परिवार से मिलना चाहते हैं या उन सबसे अच्छे दोस्तों के साथ पुनर्मिलन करते हैं जिन्हें आप युगों में नहीं देख पाए हैं - उनमें अपनेपन, प्रेम और पहचान की भावना है।
+
+एंगेलिक अहसास उन लोगों के लिए अगला कदम है जो पहले से ही एक आध्यात्मिक रास्ते पर हैं जो गहराई तक जाने के लिए तैयार हैं।
+
+## English
+1) Feathers
+Finding feathers on your path is one of the more commonly known signs of the angels. Feathers of any color are a beautiful reminder that your angels are near, loving and supporting you from behind the scenes. 
+
+2. Clouds
+
+One of the most obvious of angel signs through the clouds, is a cloud which looks like an angel. Your angels may also drawn your awareness towards clouds that look like hearts, as well as many other shapes and symbols to offer .
+
+3. Scents
+
+Have you ever noticed a lovely sweet scent and been unable to identify the source? This very well may be a sign from your angels! Angels often love to make their presence known through the power of scent. You may notice your Guardian Angels presence through a lovely rich and chocolatey smell, or the nearness of Archangels through the sweet subtle scent of flowers. Scent is a commonly used sign from your ancestors or loved ones who have crossed over as well… Do you smell your grandmothers perfume and sense her near? 
+
+4. Babies and animals 
+
+Have you ever noticed a baby looking up smiling at the ceiling, or excitedly gazing into the air, or at a blank spot on the wall? Or perhaps your pets' focus is entirely captured by something you seem unable to see… Chances are they're looking right at an angel! In the presence of angels babies, small children, and animals will be at ease, comforted… and excited.
+
+5. Music
+
+I have met several people whose first experience of the angels was when they started to hear angelic singing originating from outside the physical world. Angels may also communicate with you through recurring songs you hear on the radio. Or by causing you to hear a series of songs, all with a very similar theme. Angels are often sending messages through music, whether it is through a song which just starts playing in your mind, hearing peaceful tranquil music when meditating, or continuing to hear a certain song on the radio… Pay attention to this guidance through music which can often be a clear sign from your angels.
+
+6.Coins
+
+Finding coins, or currency in general, is a common sign of guidance and support from the realms of spirit. If you find a coin on your path, or perhaps someone gives you a coin, pay attention! Does the date on the coin hold any meaning for you? Have you asked for financial help from your angels? What were you thinking about right before you noticed the coin? This very well may be a sign from your angels, or from a loved one… When you find a coin know that it was deliberately placed on your path, and is a symbol illustrating you're loved, supported and guided.
+
+7. Sparkles of Light
+
+Angels are beings of love and light. Seeing orbs, unexplained shimmers of light, or flashes of color, are all common ways of experiencing your angels. A bright star which catches your attention, shafts of light streaming down from above, a flash of light appearing without an actual light source, light shimmering off an object in an unusual way, or an orb of light hovering near, are all signs of angels. Try closing your eyes, and if you still see the light, it's very likely an angel with you. Breathe, relax, and if you're ready your angel may expand the light before you, or envelop you within the angelic glow to bring you healing, upliftment, and rejuvination.
+
+8. Rainbows
+
+Rainbows are a common symbol of Divine love. When you ask for angelic assistance and shortly after see a rainbow, know your prayers have been heard and are being answered. If you've been thinking about your angels, or asked for a sign, and you notice a rainbow, it's likely your angels confirming they are with you. A rainbow orb around the moon, a double rainbow, or a rainbow appearing when it hasn't even been raining, are extra spectacular signs from your angels bringing encouragement, and validation from the heavens.
+
+9. Temperature Change
+
+When you're in the presence of angels, you may experience a change in temperature, which can be a wonderful validation that your angels are with you. You may suddenly feel a warm glowing light around you. Or you may get the chills, and feel cold, with a tingling or pressure in your head or on the back of your neck. This shouldn't be uncomfortable… For me it is an exciting physical manifestation from these angelic spiritual beings.
+
+10. Feelings
+
+If you feel like you are in the presence of an angel… You probably are! You may feel like someone just walked past you, when no one is there, or you may get the impression someone is present in a room with you when it is empty. Your angels may reach out to you, very subtly and wrap you in their wings of love, brush your arm or neck, or gently place their hand on your back or shoulder. Sometimes angels will make their presence very obvious giving you an overwhelming sense of unconditional love. Or when you're in a book store, you get the chills, and then a book suddenly jumps off the shelf. Pay attention, your angel is with you!
+
+11. Signs or Advertisements
+
+Angel signs will often come in the form of noticing a message on a physical sign or billboard. When you ask for guidance from your angels stay open and alert, and you may start noticing a certain word or phrase on a number of billboards, street names, or shop signs. Recently I was in New Mexico and planning to take a trip to either Sedona AZ, or Southern New Mexico… I wasn't sure which option to choose, and so I asked for help from my angels in making the decision (while riding as a passenger in a car). Almost immediately after asking, a huge sign for “Sedona Health and Nutrition” appeared on the street right before me. This was an advertisement for a local business… But I took the hint and ended up having an incredibly magical, and rewarding trip
+When you receive a message in your mind, or you a whispered voice which seems to appear out of thin air, you may be experiencing the guidance of your angels. Don't assume you're making it up! If you can't really hear what is being said, ask your angel to speak a bit louder so you can understand. Hearing the guidance of your angels is a beautiful sign of their presence, and is comm
+
+**Note: Those who felt heaviness or headpain or any type of pain in body plz drink lots of water before and after the meditation**
+
 ------------------------------------------------------------------------------------------------------------------------------
 
 You can use the [editor on GitHub](https://github.com/manibs/angelhealing.github.io/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
