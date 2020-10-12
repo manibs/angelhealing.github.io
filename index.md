@@ -4,7 +4,7 @@ This course is 21 days course.
 
 # Day 1
 Introduction to healing course
-https://youtu.be/ALSeSuqs3fE
+[Intro](https://youtu.be/ALSeSuqs3fE)
 
 You can use the [editor on GitHub](https://github.com/manibs/angelhealing.github.io/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
