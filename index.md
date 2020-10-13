@@ -2,6 +2,8 @@
 
 This course is 21 days course. 
 
+[Day 2](day2)
+
 ### Day 1
 Introduction to healing course
 [Intro](https://youtu.be/ALSeSuqs3fE)
