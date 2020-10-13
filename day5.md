@@ -34,7 +34,7 @@ Her energy is elegant and uplifting. Her words are always positive, encouraging 
 She is obedient to God, passing only the messages one needs to progress in life. 
 You can call upon her when you need help understanding, accepting, and passing messages – especially from the human realm to the spiritual realm.
 
-[Prayer](~/Arch-Angel-Prayer.mp4)
+[Prayer](Arch-Angel-Prayer.mp4)
 
 
 
