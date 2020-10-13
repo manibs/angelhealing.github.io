@@ -36,6 +36,6 @@ And so it is.
 
 [Archangel -Raphael prayer](Archangel -Raphael.mp4)
 
-[Blessings And Good News Coming Up For Youआशीर्वाद और आपके लिए अच्छी खबर आ रही है|Oracle in Hindi](https://youtu.be/o19mOWJdmWs)
+[Blessings And Good News Coming Up For You Oracle in Hindi](https://youtu.be/o19mOWJdmWs)
 
 
