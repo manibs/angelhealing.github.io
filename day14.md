@@ -1,6 +1,7 @@
 ## Day 14
 
-** Archangel Sandalphon -  Highest of Angels (twin) **
+### Archangel Sandalphon -  Highest of Angels (twin) 
+
 One of the two twins who were once human, but ascended into Angels. The twin of Metatron is known for delivering prayers to God and the spiritual realm, 
 and being connected to the Tree of Life. He’s often referred to as the Tall Angel. He represents our connection to both earth and heaven.
 Since he was once human, he understands the power of prayer, what it means to pray, and what it means to receive answers from those prayers.
