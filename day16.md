@@ -62,3 +62,25 @@ Aapko koi bhi experience ho...chahe accha ya bura ya kuch nahi... uska sirf ek m
 Kuch bhi dikhe,sune,mehsus ho...uska ek hi matlab hai...ki aap attune ho rahe ho...
 BAKI USKA KOI MEANING NAHI HAI
 KRUPYA YE SAWAL NA KARE...MATLAB NA PUCHE
+
+[Attunment basic](https://youtu.be/6FEiPyraKyg)
+
+⭐Attunement अर्थ 
+
+Attunement प्रक्रिया है जो हमारी ऊर्जाओं को आपकी ओर प्रवाहित करती है ... हम सभी स्वर्गदूतों को आपके साथ जोड़ते हैं ताकि आप उन्हें भविष्य में भी जब भी आवश्यक हो, बुला सकें ...। 
+
+इस विशेषता के साथ आप केवल अपने या अपने परिवार (माता, पिता, पति, पत्नी, बच्चों, पालतू जानवरों) को ठीक करने के लिए एन्जिल्स को बुला सकते हैं ... आपको क्लाइंट नहीं मिल सकते ... इसके लिए आपको एडवांस कोर्स के लिए जाना होगा। । 
+
+Attunement आपको एन्जिल्स और उनके मार्गदर्शन के साथ संलग्न करने की प्रक्रिया है ...
+
+⭐Attunement Meaning
+Attunement is a process to flow our energies towards you...
+With attunement we connect  all the angels with you so that you can call them whenever necessary in future as well....
+
+With this Attunement you can only call Angels to heal yourself or your immediate family(mother,father,husband,wife,kids,pets)...you cannot get clients...For that you will have to go for advance course...
+
+Attunement is the process to attune you with Angels and their guidance...
+
+[Attunment-Midcourse](Attunment-Midcourse.mp4)
+
+[Attunment-midcourse explained](Attunment-Midcourse-explained.ogg)
