@@ -8,10 +8,10 @@
 [जड़ चकोर](जड़ चकोर.pdf)
 
 ### Mudras for root chakra meditation
-[Mudra 1](rootchakra\mudra1.jpeg)
-[Mudra 2](rootchakra\mudra2.jpeg)
-[Mudra 3](rootchakra\mudra3.jpeg)
-[Mudra 4](rootchakra\mudra4.jpeg)
+![Image](rootchakra\mudra1.jpeg)
+![Image](rootchakra\mudra2.jpeg)
+![Image](rootchakra\mudra3.jpeg)
+![Image](rootchakra\mudra4.jpeg)
 
 ![Image](Root-Affirmation.jpeg)
 
